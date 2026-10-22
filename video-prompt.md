@@ -1,0 +1,1 @@
+Opening scene. Empty city street at dawn. First rays of sunlight hit buildings. Quiet anticipation. Continuation. Same street now bustling. People walking, cars passing. Energy builds. Same color grade as opening. Final scene. Same street at dusk. Lights turn on in buildings. Warm, satisfying conclusion. Visual callback to opening.
